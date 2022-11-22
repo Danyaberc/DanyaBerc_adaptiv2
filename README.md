@@ -1,0 +1,1 @@
+# DanyaBerc_adaptiv2
